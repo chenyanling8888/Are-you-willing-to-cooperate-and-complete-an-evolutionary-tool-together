@@ -3,6 +3,7 @@
 The English chinese Practical collection is the first step of creatigng New Knowledge and Corresponding Toola
 
 原创：陈燕玲
+
 请认认真真一字一句看完它,莫错失优异的机会!!!
 
 《上道下器》是什么,笼统说是进化工具,也就是推动整个社会进化工具,那它究竟长得什么样呢?
