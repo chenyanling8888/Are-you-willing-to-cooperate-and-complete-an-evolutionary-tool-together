@@ -1,6 +1,6 @@
 # Are-you-willing-to-cooperate-and-complete-an-evolutionary-tool-together
 
-The English chinese Practical collection is the first step of creatigng New Knowledge and Corresponding Toola
+The first step in the opening of creating new knowledge is transformed into a  commodity that everyone can trade
 
 原创：陈燕玲
 
